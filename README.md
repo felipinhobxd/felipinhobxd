@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-- 📫 How to reach me: felipinho@segfault.net
+📫 How to reach me: felipinho@segfault.net
